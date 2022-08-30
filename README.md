@@ -1,0 +1,4 @@
+- 👋 E pozdrav, pozdrav
+- 💻 FiveM developer (rispekt)
+- 📫 17yo
+- 🇷🇸 / Serbia
